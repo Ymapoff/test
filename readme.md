@@ -1,5 +1,7 @@
 # Hello, bro!
 
-i am TERMINATOR
+i am TERMINATOR!
 
-08.03.2023
+I need your clothes and your motorcycle!
+
+I like to sleep in the mountains, walk on nails and watch the fire burn
